@@ -172,7 +172,7 @@ placement_eligibility/
 
 **Jerwin Manuel**  
 Dept. of Electronics and Computer, VIT University  
-📧 jerwin.manuel2022@vitstudent.ac.in
+📧 jerwinmanuel04@gmail.com
 
 ---
 
